@@ -1,1 +1,0 @@
-# Intelligent-Crop-Marketing-Assistant
